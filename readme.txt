@@ -1,0 +1,1 @@
+Kazkos textas
